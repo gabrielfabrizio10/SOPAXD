@@ -5,7 +5,7 @@ Es un proyecto de ley propuesto por el Congreso de los Estados Unidos para ampli
 Fueron introducidas el 26 de octubre de 2011 por el representante Lamar Smith, las disposiciones incluían la solicitud de órdenes judiciales para impedir que las redes de publicidad y los servicios de pago realicen negocios con sitios web infractores y que los motores de búsqueda establezcan enlaces a los sitios web y órdenes judiciales.
 
 
-|STOP|SOPA|
+|SOPA|
   | :----------- | :----------- |
  |S|Stop|
  |O|Online|
