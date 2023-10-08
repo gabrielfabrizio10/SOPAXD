@@ -9,6 +9,8 @@ Fueron introducidas el 26 de octubre de 2011 por el representante Lamar Smith, l
  |O|Online|
  |P|Piracy|
  |A|Act|
+
+ 
  Imagenes referentes de SOPA:
  [SOPA.jpg](https://postimg.cc/JDrZJN8T)
 
