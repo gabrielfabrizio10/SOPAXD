@@ -6,7 +6,7 @@ Fueron introducidas el 26 de octubre de 2011 por el representante Lamar Smith, l
 
 
 |SOPA|
-  | :----------- | :----------- |
+  | :----------- |
  |S|Stop|
  |O|Online|
  |P|Piracy|
