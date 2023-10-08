@@ -12,6 +12,6 @@ Fueron introducidas el 26 de octubre de 2011 por el representante Lamar Smith, l
 
  
  Imagenes referentes de SOPA:
- (https://postimg.cc/JDrZJN8T)
+ [![SOPA.jpg](https://i.postimg.cc/B6DgrpVG/SOPA.jpg)](https://postimg.cc/JDrZJN8T)
 
  [![image.png](https://i.postimg.cc/Zqz0fLpN/image.png)](https://postimg.cc/zypJvKdD)
