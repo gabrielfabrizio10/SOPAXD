@@ -1,4 +1,4 @@
-# SOPAXD
+# SOPA
 **¿Qué es SOPA?**
 
 Es un proyecto de ley propuesto por el Congreso de los Estados Unidos para ampliar la capacidad de las autoridades policiales estadounidenses para combatir la infracción de derechos de autor en línea y el tráfico en línea de productos falsificados.
