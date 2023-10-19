@@ -8,7 +8,7 @@ Lamar S. Smith
 es un político estadounidensE que desde 1987 es miembro de la Cámara de Representantes de su país por el distrito 21 de Texas, que incluye algunas regiones de San Antonio y de Austin lo mismo que la mayor parte de Texas Hill Country. 
 El 26 de octubre de 2011 presentó el proyecto de la ley SOPA.
 
-Lamar_S._Smith,_official_Congressional_photo_portrait.jpg
+[Lamar-S-Smith-official-Congressional-photo-portrait.jpg](https://postimg.cc/JG2RjbX8)
 
 
 |Siglas|Sopa
