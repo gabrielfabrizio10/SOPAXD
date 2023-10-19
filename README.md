@@ -1,6 +1,9 @@
 # SOPA
 **¿Qué es SOPA?**
 
+ [![SOPA.jpg](https://i.postimg.cc/B6DgrpVG/SOPA.jpg)](https://postimg.cc/JDrZJN8T)
+
+ 
 Es un proyecto de ley propuesto por el Congreso de los Estados Unidos para ampliar la capacidad de las autoridades policiales estadounidenses para combatir la infracción de derechos de autor en línea y el tráfico en línea de productos falsificados.
 Fueron introducidas el 26 de octubre de 2011 por el representante Lamar Smith es un político estadounidensE que desde 1987 es miembro de la Cámara de Representantes de su país por el distrito 21 de Texas que incluye algunas regiones de San Antonio y de Austin lo mismo que la mayor parte de Texas Hill Country. 
 El 26 de octubre de 2011 presentó el proyecto de la ley SOPA.
@@ -25,10 +28,5 @@ https://youtube.com/shorts/7nHYbGWnn24?si=HcntRiWunWNRujjM
  |P|Piracy|
  |A|Act|
 
- 
- **Imagenes referentes de SOPA:**
- [![SOPA.jpg](https://i.postimg.cc/B6DgrpVG/SOPA.jpg)](https://postimg.cc/JDrZJN8T)
-
- [![image.png](https://i.postimg.cc/Zqz0fLpN/image.png)](https://postimg.cc/zypJvKdD)
 
 https://youtu.be/o8ZVFjjw54w?si=4n1i3HTlPEoQBeat
