@@ -11,6 +11,8 @@ El 26 de octubre de 2011 presentó el proyecto de la ley SOPA.
 [![Lamar-S-Smith-official-Congressional-photo-portrait.jpg](https://i.postimg.cc/SxyjFdNn/Lamar-S-Smith-official-Congressional-photo-portrait.jpg)](https://postimg.cc/JG2RjbX8)
 
 
+¿Que significan sus siglas?
+
 |Siglas|Sopa
   | :----------- | :----------- |
  |S|Stop|
