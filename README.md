@@ -7,7 +7,7 @@ El 26 de octubre de 2011 presentó el proyecto de la ley SOPA.
 
 [![Lamar-S-Smith-official-Congressional-photo-portrait.jpg](https://i.postimg.cc/SxyjFdNn/Lamar-S-Smith-official-Congressional-photo-portrait.jpg)](https://postimg.cc/JG2RjbX8)
 
-Las disposiciones incluían la solicitud de órdenes judiciales para impedir que las redes de publicidad y los servicios de pago realicen negocios con sitios web infractores y que los motores de búsqueda establezcan enlaces a los sitios web y órdenes judiciales lo cual hace que muchas personas sufran por no poner videos con libertad debido a que el video que subieron sea dado de baja por tema de derechos de autor al estar relacionado con la persona o un personaje ficticio  lo cual hace que esta ley no le guste a muchas personas 
+Las disposiciones incluían la solicitud de órdenes judiciales para impedir que las redes de publicidad y los servicios de pago realicen negocios con sitios web infractores y que los motores de búsqueda establezcan enlaces a los sitios web y órdenes judiciales lo cual hace que muchas personas no puedan poner videos con libertad debido a que el video que subieron sea dado de baja por tema de derechos de autor al estar relacionado con la persona o un personaje ficticio o incluso música lo cual hace que esta ley no sea del agrado de las personas 
 
 [![8g-W4-807-400x400.jpg](https://i.postimg.cc/ZYF7HPnf/8g-W4-807-400x400.jpg)](https://postimg.cc/MXHmKQyR)
 
