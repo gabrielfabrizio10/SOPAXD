@@ -23,10 +23,9 @@ Las disposiciones incluían la solicitud de órdenes judiciales para impedir que
 
 [![8g-W4-807-400x400.jpg](https://i.postimg.cc/ZYF7HPnf/8g-W4-807-400x400.jpg)](https://postimg.cc/MXHmKQyR)
 
-Seran dado de baja los videos así:
+En todo caso seran dado de baja los videos por reclamos de copyright de la siguiente manera:
+
 
 https://youtube.com/shorts/7nHYbGWnn24?si=HcntRiWunWNRujjM
 
 
-
-https://youtu.be/o8ZVFjjw54w?si=4n1i3HTlPEoQBeat
